@@ -1,4 +1,4 @@
-# 
+# best MindManager for Windows Extension | notes-integration + templates offers the most advanced MindManager for Windows extension, with notes-integration and templates. Ideal for
 
 
 
